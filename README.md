@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @UoooBarry
-- 👀 I’m interested in ...
+- 👀 I’m interested in Coding & Cooking
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on anythingfun
 - 📫 How to reach me huahua.personal@gmail.com
 
 <!---
